@@ -1,1 +1,1 @@
-# ThAmCo-Events-Assessment-
+# ThAmCo-Events-Assessment
